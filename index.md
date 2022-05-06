@@ -13,6 +13,6 @@ If you have any questions about CROSS, please send an email to either John Kuk (
 Thank you, and we look forward to launching CROSS this summer!
 
 ## Sign Up
-Apply to present: [*Present your work!*](https://forms.gle/jwcLXcLBnsQzL4MZ9)
+**Apply to present: [*Present your work!*](https://forms.gle/jwcLXcLBnsQzL4MZ9)**
 
-Join our email list: [*Get our emails!*](https://forms.gle/fCvUJ42AdVq3DZ4V6)
+**Join our email list: [*Get our emails!*](https://forms.gle/fCvUJ42AdVq3DZ4V6)**
