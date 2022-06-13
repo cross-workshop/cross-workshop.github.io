@@ -15,6 +15,11 @@ Thank you, and we look forward to launching CROSS this summer!
 - [Mallory Sorelle](http://www.mallorysorelle.com/), Predatory Politics: Race and The Unequal Resource Effects of Debt (Discussant: [Amber Wichowsky](https://amberwichowsky.com/))
 - [Victoria Asbury](https://victoriaasbury.com/), When Citizenship is not Enough: The Role of Ascriptive and Acquired Characteristics in Defining Who is “Truly American” among White Americans (Discussant: [Deborah J. Schildkraut](https://sites.tufts.edu/deborahschildkraut/))
 
+## June Seminar: Thursday, June 16, 1 PM EDT, 10 AM PDT
+
+- [Alexandra Filindra](https://pols.uic.edu/profiles/filindra-alexandra/), Race, Rights, and Rifles: The Historical Origins of the NRA and White Americans' Obsession with Guns. (Discussant: [Donald Haider-Markel](https://kups.ku.edu/people/don-haider-markel))
+- [Jeremy Siow](https://polisci.wustl.edu/people/wei-meng-jeremy-siow), Bilingual Instruction and Political Discrimination of Ethnic Outgroups: Evidence from a Natural Experiment in Malaysia (Discussant: TBD)
+
 ## Sign Up
 
 **Join our email list: [*Get our emails!*](https://forms.gle/fCvUJ42AdVq3DZ4V6)**
