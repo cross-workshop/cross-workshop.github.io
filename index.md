@@ -18,7 +18,7 @@ Thank you, and we look forward to launching CROSS this summer!
 ## June Seminar: Thursday, June 16, 1 PM EDT, 10 AM PDT
 
 - [Alexandra Filindra](https://pols.uic.edu/profiles/filindra-alexandra/), Race, Rights, and Rifles: The Historical Origins of the NRA and White Americans' Obsession with Guns. (Discussant: [Donald Haider-Markel](https://kups.ku.edu/people/don-haider-markel))
-- [Jeremy Siow](https://polisci.wustl.edu/people/wei-meng-jeremy-siow), Bilingual Instruction and Political Discrimination of Ethnic Outgroups: Evidence from a Natural Experiment in Malaysia (Discussant: TBD)
+- [Jeremy Siow](https://polisci.wustl.edu/people/wei-meng-jeremy-siow), Bilingual Instruction and Political Discrimination of Ethnic Outgroups: Evidence from a Natural Experiment in Malaysia (Discussant: [Matthew Nelsen](https://matthewdnelsen.com/))
 
 ## Sign Up
 
